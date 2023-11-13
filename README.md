@@ -1,4 +1,6 @@
 # Social Media Growth
 
 
-Hello everyone! In this repository, I'm going to include screenshots from the past year and a half to document my social media page growth.  
+Hello everyone! In this repository, I'm going to document my achievements as a social media manager. Below are screenshots of my social media page growth within the last year and a half:
+
+
