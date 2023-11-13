@@ -9,3 +9,9 @@ Hello everyone! In this repository, I'm going to document my achievements as a s
 ![image](https://github.com/sorgille/Content-Creator/blob/main/IMG_9141.PNG?raw=true)
 
 ![image](https://github.com/sorgille/Content-Creator/blob/main/IMG_2093.jpg?raw=true)
+
+![image](https://raw.githubusercontent.com/sorgille/Content-Creator/main/IMG_5848.heic)
+
+
+![image](https://github.com/sorgille/Content-Creator/blob/main/IMG_0695.jpeg?raw=true)
+
